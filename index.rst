@@ -1,8 +1,9 @@
 ### Gamebai9
 
-Chuyên trang cập nhật game bài đổi thưởng mới được nhiều người chơi nhất hiện nay. Gamebai9.com mang đến những tựa game chất lượng, link tải game bài cực chất, đổi thưởng uy tín và nhiều sự kiện hấp dẫn mỗi ngày.
+Gamebai9.com - website chuyên về game bài đổi thưởng trực tuyến, game đổi thẻ cào, đổi thưởng tiền thật, qua ngân hàng, atm. Cập nhật tin tức game bài mới nhất hiện nay và đánh giá từ nhiều người chơi, nhận khuyến mãi khủng.
+#gamebaidoithuong #gamebaidoithuonguytin #conggamedoithuonghot
 
-- Địa chỉ: 122 TÔN ĐẢN, PHƯỜNG 10, QUẬN 4, TP.HCM
+- Địa chỉ: 12 TÔN ĐẢN, PHƯỜNG 10, QUẬN 4, TP.HCM
 
 - SDT: 0935777889
 
